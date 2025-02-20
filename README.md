@@ -1,0 +1,1 @@
+jméno na discordu: barahrdinova
